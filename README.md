@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anteasa
-- 👀 I’m interested in UX/UI design, SEO and marketing of course developing
+- 👀 I’m interested in UX/UI design, SEO and marketing, of course learning anything i can.
 - 🌱 I’m currently learning JAvascript 
 - 📫 How to reach me ...
 - 😄 Pronouns: She/her
